@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Eat Pizza 🍕
+2. Read Books 📘
